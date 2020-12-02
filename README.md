@@ -1,4 +1,4 @@
-# Projetos, Cursos e Tutorias
+# Projetos, Cursos e Tutoriais
 
 ## Daniel Marcos Hermenegildo
 ### danielmarcosh@gmail.com / danielmh321@hotmail.com
